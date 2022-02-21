@@ -3,6 +3,6 @@
 > This is My Fastest Typing that I recorded on <a href="https://10fastfingers.com/"><b><i>10 Fast Fingers.</i></b></a>
 
 #
-# <div align="center"><img src="10 Faster Fingers.jpg"></div>
+# <div align="center"><img src="10 Faster Fingers.png"></div>
 #
 > I record My Fastest Typing when I am 13 years old (Grade 8D).
