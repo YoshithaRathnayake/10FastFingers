@@ -5,4 +5,4 @@
 #
 # <div align="center"><img src="10 Faster Fingers.png"></div>
 #
-> I record My Fastest Typing when I am 13 years old (Grade 8D).
+> I record My Fastest Typing when I was 13 years old (Grade 8D).
