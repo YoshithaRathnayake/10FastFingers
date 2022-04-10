@@ -1,6 +1,6 @@
 # <div align="center"><a href="https://img.10fastfingers.com/speedtests/generate_screenshot_result/1_52_259_259_0_50_0"><b><i>10 FAST FINGERS</i></b></a></div>
 
-> This is My Fastest Typing that I recorded on <a href="https://10fastfingers.com/"><b><i>10 Fast Fingers.</i></b></a>
+> This is My Fastest Typing that I recorded on <a href="https://10fastfingers.com/"><b><i>10 Fast Fingers</i></b></a>. <a href="https://img.10fastfingers.com/speedtests/generate_screenshot_result/1_52_259_259_0_50_0"><b><i>(SCREENSHOT)</i></b></a> 
 
 > I record My Fastest Typing when I was 13 years old (Grade 8D).
 
